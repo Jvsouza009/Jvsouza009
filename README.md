@@ -1,0 +1,1 @@
+oi eu sou o joao,tenho 15 anos rs,estou fazendo o ensino médio minha matéria favorita é matemática depois da escola vou trabalhar no lava rápido quando eu terminar o estudo pretendo fazer faculdade de dotologia, ah tenho um grande sonho também de ser jogador de futebol
